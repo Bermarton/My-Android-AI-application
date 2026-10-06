@@ -1,1 +1,0 @@
-# My-Android-AI-application
